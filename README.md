@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @guii3d
 - 👀 I’m interested in 3d art and animations .
-- 🌱 I’m currently learning to self control .
 - 💞️ I’m looking to collaborate on game industry .
 - 📫 guilhermewalker.ink@gmail.com 
 
